@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @psyjo4
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning computer science @ The University Of Nottingham
+- 💞️ I’m looking to collaborate on projects
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love chickenpie
